@@ -1,1 +1,0 @@
-# hermel-academy
